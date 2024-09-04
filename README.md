@@ -1,16 +1,19 @@
-## Hi there 👋
+seja bem vindosss
 
-<!--
-**yggaby/yggaby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Gabriely**
 
-Here are some ideas to get you started:
+estou estudando na [alura](https://www.alura.com.br/?srsltid=AfmBOoozJvbAGChUSOYvTbIikkuQnIy2iE8K5t5uXzIWnmc2-JSphMGA)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+estudo no colégio adolpho
+
+tenho 14 anos
+
+jogo handebol
+
+gosto de ouvir música e ver filmes
+
+sou de exatas
+
+pretendo fazer direito
+
+![](
