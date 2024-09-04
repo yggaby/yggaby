@@ -17,3 +17,6 @@ sou de exatas
 pretendo fazer direito
 
 ![](https://media.tenor.com/dY-I0ReI6TkAAAAM/fairos.gif)
+
+
+![](https://media.tenor.com/XmQAUMgpAMUAAAAM/missed-hampus-wanne.gif)
